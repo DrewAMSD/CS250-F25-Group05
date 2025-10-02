@@ -8,3 +8,6 @@ Adarsh Shresth
 
 Parleen Bagga
 
+Caleb Thai
+
+Nathan Tran
